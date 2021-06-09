@@ -13,4 +13,5 @@
 - 📫 How to reach me: info@kanzleimanagement.io
 - 😄 Pronouns: she/her...
 - ⚡ Fun fact: I never stopped being a girl from the northern part of Germany. My best loved breakfast ist Karrysild (Hering from Denmark in Curry Sauce) with black bread and a coffee.
+
 For serious information you can visit my profile on https://www.linkedin.com/in/gudrun-mildner/
